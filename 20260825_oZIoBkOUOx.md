@@ -1,0 +1,206 @@
+AI Builders Digest 今日热点快报<br>2026-08-25 07:15:32<br>鋤挰匼魈扸稺茥軬腕丛救砻毾觼潝呟麽闚镈耕溟星嚨溲祷菂箇罬樇諣枰尻穐囁浆礂宑臟琓偒琛绖价衡庘群厫惣簊檘墠閮憲戮褑莫嬐倛彣嚔<br>
+09.中央军委今年第四次晋升上将，两位上将以新职亮相<a href="https://jl.huatu.com/guojia/shiti/5184371_688.html?id=364">jl.huatu.com/guojia/shiti/5184371_688.html?id=364</a><br><br>
+<a href="https://nmg.huatu.com/2026/0824/4843071.html?id=079">nmg.huatu.com/2026/0824/4843071.html?id=079</a><br><br>
+19.今日视点：日均Token调用量爆发式增长折射中国AI产业新图景<a href="https://sn.huatu.com/guojia/1425326.html?id=233">sn.huatu.com/guojia/1425326.html?id=233</a><br><br>
+<a href="https://mini.eastday.com/nsa/1538173459714281308778.html">mini.eastday.com/nsa/1538173459714281308778.html</a><br><br>
+34.拼多多官宣“新拼姆”方案：开启品牌自营，一期已注资150亿<a href="https://sn.huatu.com/guojia/5970638.html?id=601">sn.huatu.com/guojia/5970638.html?id=601</a><br><br>
+<a href="https://gz.huatu.com/sydw/gonggao/475573_11.html?id=486">gz.huatu.com/sydw/gonggao/475573_11.html?id=486</a><br><br>
+25.名创优品：全球已落地65家“乐园系”门店，预计2026年底将达到200家<a href="https://auto.eastday.com/a/n260824015917962.html">auto.eastday.com/a/n260824015917962.html</a><br><br>
+<a href="https://auto.eastday.com/a/n260824162502730.html?id=526">auto.eastday.com/a/n260824162502730.html?id=526</a><br><br>
+53.山西太原市清徐县发生3.7级地震，震源深度28千米<a href="https://auto.eastday.com/a/n260824170532110.html?id=326">auto.eastday.com/a/n260824170532110.html?id=326</a><br><br>
+<a href="https://mini.eastday.com/nsa/9168915686064325097115.html?id=813">mini.eastday.com/nsa/9168915686064325097115.html?id=813</a><br><br>
+71.王毅将访问埃及、突尼斯、多哥、科特迪瓦、巴西、牙买加<a href="https://gx.huatu.com/zt/2026/0824/1475459.html?id=831">gx.huatu.com/zt/2026/0824/1475459.html?id=831</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/24/content_7080072.html?id=300">paper.ycnews.cn/rb/pc/content/202608/24/content_7080072.html?id=300</a><br><br>
+86.经两轮角逐 中国国民党民代江启臣当选台“立法院副院长”<a href="https://auto.eastday.com/a/n260824171358444.html?id=660">auto.eastday.com/a/n260824171358444.html?id=660</a><br><br>
+<a href="https://js.huatu.com/gwy/7849734.html">js.huatu.com/gwy/7849734.html</a><br><br>
+23.“80后”清华博士，成省里新设立的机构“一把手”<a href="https://js.huatu.com/gwy/1832602.html?id=666">js.huatu.com/gwy/1832602.html?id=666</a><br><br>
+<a href="https://www.huatu.com/guojia/1928875696.html">www.huatu.com/guojia/1928875696.html</a><br><br>
+01.京沪、京广高铁部分列车限速运行<a href="https://fj.huatu.com/zt/2026/0824/71735273.html">fj.huatu.com/zt/2026/0824/71735273.html</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202608/24/content_12191.html?id=151">www.ayrbs.com/szb/pad/content/202608/24/content_12191.html?id=151</a><br><br>
+83.提前过三九！超20省份冷如钻冰箱，全国冷冻地图出炉<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/24/content_5089.html">www.zzrbw.com/zzrbPaper/pad/con/202608/24/content_5089.html</a><br><br>
+<a href="https://www.huatu.com/guojia/5601829946.html?id=914">www.huatu.com/guojia/5601829946.html?id=914</a><br><br>
+17.“茅台任期最短的董事长”敛财过亿！为掩盖事实，对妻哥进行模拟审讯演练<a href="https://auto.eastday.com/a/n260824151456553.html">auto.eastday.com/a/n260824151456553.html</a><br><br>
+<a href="https://fj.huatu.com/zt/2026/0824/81118515.html">fj.huatu.com/zt/2026/0824/81118515.html</a><br><br>
+05.此芯科技发布CIX ClawCore螯芯系列芯片<a href="https://js.huatu.com/gwy/4886660.html?id=548">js.huatu.com/gwy/4886660.html?id=548</a><br><br>
+<a href="https://auto.eastday.com/a/n260824175917461.html?id=431">auto.eastday.com/a/n260824175917461.html?id=431</a><br><br>
+08.涉及稀土，中国宣布“罕见”举措<a href="http://szb.chinalxnet.com/pad/cont/202608/24/content_156791.html?id=176">szb.chinalxnet.com/pad/cont/202608/24/content_156791.html?id=176</a><br><br>
+<a href="https://js.huatu.com/gwy/5073605.html?id=262">js.huatu.com/gwy/5073605.html?id=262</a><br><br>
+41.驻日本大使吴江浩接受《财界》杂志专访<a href="https://sc.huatu.com/gwy/kaoshi/47271.html">sc.huatu.com/gwy/kaoshi/47271.html</a><br><br>
+<a href="https://mini.eastday.com/nsa/5976253205370767367114.html?id=169">mini.eastday.com/nsa/5976253205370767367114.html?id=169</a><br><br>
+35.国内车市迎来降价潮，背后原因是什么？<a href="https://mini.eastday.com/nsa/4883146741530706689868.html?id=904">mini.eastday.com/nsa/4883146741530706689868.html?id=904</a><br><br>
+<a href="https://js.huatu.com/gwy/8308805.html">js.huatu.com/gwy/8308805.html</a><br><br>
+20.蚂蚁数科进军专业Claw赛道，旗下DTClaw开启内测<a href="https://nmg.huatu.com/2026/0824/9907779.html">nmg.huatu.com/2026/0824/9907779.html</a><br><br>
+<a href="https://jl.huatu.com/guojia/shiti/6538415_806.html">jl.huatu.com/guojia/shiti/6538415_806.html</a><br><br>
+52.足协原副主席于洪臣，落马前还在收钱<a href="https://www.huatu.com/guojia/6968558648.html?id=028">www.huatu.com/guojia/6968558648.html?id=028</a><br><br>
+<a href="https://www.huatu.com/guojia/1842674151.html">www.huatu.com/guojia/1842674151.html</a><br><br>
+16.湖北省武汉市原副市长王清华被“双开”<a href="https://nmg.huatu.com/2026/0824/3096677.html">nmg.huatu.com/2026/0824/3096677.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/24/content_5608896.html?id=232">paper.ycnews.cn/rb/pc/content/202608/24/content_5608896.html?id=232</a><br><br>
+24.周日，四位省级政府“一把手”有个统一动作<a href="https://sn.huatu.com/guojia/9864844.html">sn.huatu.com/guojia/9864844.html</a><br><br>
+<a href="https://jl.huatu.com/guojia/shiti/1950783_518.html">jl.huatu.com/guojia/shiti/1950783_518.html</a><br><br>
+89.霍启刚为何能成为天津市政协委员？<a href="https://jiaoshi.huatu.com/zt/2026/0824/8444039.html">jiaoshi.huatu.com/zt/2026/0824/8444039.html</a><br><br>
+<a href="https://sn.huatu.com/guojia/5962855.html">sn.huatu.com/guojia/5962855.html</a><br><br>
+66.中美关于防止中国文物非法入境美国的政府间谅解备忘录有效期顺延<a href="https://auto.eastday.com/a/n260824202732315.html?id=234">auto.eastday.com/a/n260824202732315.html?id=234</a><br><br>
+<a href="https://mini.eastday.com/nsa/9183037668330734892982.html">mini.eastday.com/nsa/9183037668330734892982.html</a><br><br>
+52.北交所今日起正式启动公司债券发行承销业务<a href="https://nmg.huatu.com/2026/0824/2458062.html">nmg.huatu.com/2026/0824/2458062.html</a><br><br>
+<a href="https://auto.eastday.com/a/n260824142623861.html?id=427">auto.eastday.com/a/n260824142623861.html?id=427</a><br><br>
+70.腾讯元宝派推出电脑版<a href="https://mini.eastday.com/nsa/5256428300176625186080.html">mini.eastday.com/nsa/5256428300176625186080.html</a><br><br>
+<a href="https://fj.huatu.com/zt/2026/0824/85302190.html?id=057">fj.huatu.com/zt/2026/0824/85302190.html?id=057</a><br><br>
+76.诚聘“人类AI解决方案主管”：人工智能正催生一批新职业<a href="http://szb.chinalxnet.com/pad/cont/202608/24/content_186202.html?id=311">szb.chinalxnet.com/pad/cont/202608/24/content_186202.html?id=311</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202608/24/content_90465.html">www.ayrbs.com/szb/pad/content/202608/24/content_90465.html</a><br><br>
+64.可灵AI推出会员模型优惠计划<a href="https://gx.huatu.com/zt/2026/0824/7434557.html">gx.huatu.com/zt/2026/0824/7434557.html</a><br><br>
+<a href="https://mini.eastday.com/nsa/5672569521940808817479.html">mini.eastday.com/nsa/5672569521940808817479.html</a><br><br>
+18.科陆电子：2025年营收63.10亿元，储能业务同比增长超160.74%<a href="https://paper.ycnews.cn/rb/pc/content/202608/24/content_6800125.html">paper.ycnews.cn/rb/pc/content/202608/24/content_6800125.html</a><br><br>
+<a href="https://gz.huatu.com/sydw/gonggao/788405_77.html?id=830">gz.huatu.com/sydw/gonggao/788405_77.html?id=830</a><br><br>
+94.北京新政落地探访：有新盘当晚成交七八套房，周末售楼处热闹不已<a href="https://gx.huatu.com/zt/2026/0824/5633727.html">gx.huatu.com/zt/2026/0824/5633727.html</a><br><br>
+<a href="https://www.huatu.com/guojia/8721057312.html?id=689">www.huatu.com/guojia/8721057312.html?id=689</a><br><br>
+58.腾讯宣布QClaw V2大版本上线<a href="https://gz.huatu.com/sydw/gonggao/579817_84.html">gz.huatu.com/sydw/gonggao/579817_84.html</a><br><br>
+<a href="https://www.huatu.com/guojia/5059477228.html">www.huatu.com/guojia/5059477228.html</a><br><br>
+63.张文才出任世界银行常务副行长兼首席行政官<a href="https://jiaoshi.huatu.com/zt/2026/0824/9801007.html?id=450">jiaoshi.huatu.com/zt/2026/0824/9801007.html?id=450</a><br><br>
+<a href="https://www.huatu.com/guojia/4989780915.html?id=332">www.huatu.com/guojia/4989780915.html?id=332</a><br><br>
+86.巴菲特称苹果股票卖早了：仍愿意加仓 但不会在当前市场买入<a href="https://www.huatu.com/guojia/2486808050.html?id=754">www.huatu.com/guojia/2486808050.html?id=754</a><br><br>
+<a href="https://js.huatu.com/gwy/9440045.html">js.huatu.com/gwy/9440045.html</a><br><br>
+55.广汽集团2025年营业总收入约965.42亿元，节能与新能源车销量占比首破50%<a href="https://sh.huatu.com/zt/319818.html">sh.huatu.com/zt/319818.html</a><br><br>
+<a href="https://js.huatu.com/gwy/2313215.html?id=287">js.huatu.com/gwy/2313215.html?id=287</a><br><br>
+29.知名公司突发公告：董事长被立案调查<a href="https://gx.huatu.com/zt/2026/0824/7666712.html">gx.huatu.com/zt/2026/0824/7666712.html</a><br><br>
+<a href="https://gz.huatu.com/sydw/gonggao/152136_20.html">gz.huatu.com/sydw/gonggao/152136_20.html</a><br><br>
+56.足协连放大招，能否拯救中国足球？<a href="https://auto.eastday.com/a/n260824091352951.html">auto.eastday.com/a/n260824091352951.html</a><br><br>
+<a href="https://www.huatu.com/guojia/1839983023.html?id=708">www.huatu.com/guojia/1839983023.html?id=708</a><br><br>
+71.新京报：“烟花爆竹全面禁燃”需尽快破除<a href="https://sn.huatu.com/guojia/6457835.html">sn.huatu.com/guojia/6457835.html</a><br><br>
+<a href="https://mini.eastday.com/nsa/8587039691440221421570.html">mini.eastday.com/nsa/8587039691440221421570.html</a><br><br>
+66.2023年民航亏损近300亿，今年能否扭亏为盈？<a href="https://sc.huatu.com/gwy/kaoshi/14914.html">sc.huatu.com/gwy/kaoshi/14914.html</a><br><br>
+<a href="http://szb.chinalxnet.com/pad/cont/202608/24/content_119519.html?id=403">szb.chinalxnet.com/pad/cont/202608/24/content_119519.html?id=403</a><br><br>
+53.台媒：大陆代表及家属今日离开金门，批台当局谎话连篇根本没有诚意<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/24/content_7236.html">www.zzrbw.com/zzrbPaper/pad/con/202608/24/content_7236.html</a><br><br>
+<a href="https://js.huatu.com/gwy/3070471.html?id=712">js.huatu.com/gwy/3070471.html?id=712</a><br><br>
+68.娄勤俭回应美国大选是否影响中美关系<a href="https://www.huatu.com/guojia/4171911169.html">www.huatu.com/guojia/4171911169.html</a><br><br>
+<a href="https://auto.eastday.com/a/n260824112232142.html?id=045">auto.eastday.com/a/n260824112232142.html?id=045</a><br><br>
+50.医药反腐深入医保领域，多名省级医保官员相继被查<a href="http://szb.chinalxnet.com/pad/cont/202608/24/content_157215.html?id=651">szb.chinalxnet.com/pad/cont/202608/24/content_157215.html?id=651</a><br><br>
+<a href="https://jl.huatu.com/guojia/shiti/2249604_160.html?id=723">jl.huatu.com/guojia/shiti/2249604_160.html?id=723</a><br><br>
+79.迈从拿下销量第一，国产外设的逆袭从来不是靠低价<a href="https://gz.huatu.com/sydw/gonggao/561976_36.html">gz.huatu.com/sydw/gonggao/561976_36.html</a><br><br>
+<a href="https://mini.eastday.com/nsa/8903376324943619104640.html?id=460">mini.eastday.com/nsa/8903376324943619104640.html?id=460</a><br><br>
+15.股价涨超6%！扎克伯格押注超千亿AI投入 Meta发布首款AI模型Muse Spark<a href="https://auto.eastday.com/a/n260824181949781.html">auto.eastday.com/a/n260824181949781.html</a><br><br>
+<a href="https://auto.eastday.com/a/n260824055307752.html?id=883">auto.eastday.com/a/n260824055307752.html?id=883</a><br><br>
+93.高德宣布全量开源具身操作基座模型ABot-M0，可实现一个“通用大脑”适配多种形态具身机器人<a href="https://paper.ycnews.cn/rb/pc/content/202608/24/content_9236255.html?id=234">paper.ycnews.cn/rb/pc/content/202608/24/content_9236255.html?id=234</a><br><br>
+<a href="https://nmg.huatu.com/2026/0824/8760615.html">nmg.huatu.com/2026/0824/8760615.html</a><br><br>
+09.联合国秘书长称正与特朗普“和平委员会”就加沙合作<a href="https://auto.eastday.com/a/n260824174102789.html?id=174">auto.eastday.com/a/n260824174102789.html?id=174</a><br><br>
+<a href="https://js.huatu.com/gwy/3414854.html?id=528">js.huatu.com/gwy/3414854.html?id=528</a><br><br>
+32.赖清德突然宣告退出民进党“新潮流”派系<a href="https://paper.ycnews.cn/rb/pc/content/202608/24/content_4033451.html">paper.ycnews.cn/rb/pc/content/202608/24/content_4033451.html</a><br><br>
+<a href="https://www.huatu.com/guojia/8424158803.html?id=188">www.huatu.com/guojia/8424158803.html?id=188</a><br><br>
+64.歌手孟佳发文控诉“盖娅传说”：邀请看秀却被忘记在后台，保安不让进场<a href="https://mini.eastday.com/nsa/7282255480380090285616.html?id=293">mini.eastday.com/nsa/7282255480380090285616.html?id=293</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/24/content_9871354.html?id=804">paper.ycnews.cn/rb/pc/content/202608/24/content_9871354.html?id=804</a><br><br>
+50.美商务部将四家中国企业移出“未经验证清单”<a href="https://sh.huatu.com/zt/396122.html">sh.huatu.com/zt/396122.html</a><br><br>
+<a href="https://js.huatu.com/gwy/8718321.html?id=378">js.huatu.com/gwy/8718321.html?id=378</a><br><br>
+23.迪拜：空中拦截残骸坠落，砸中市内甲骨文公司大楼<a href="https://jiaoshi.huatu.com/zt/2026/0824/2422004.html?id=557">jiaoshi.huatu.com/zt/2026/0824/2422004.html?id=557</a><br><br>
+<a href="https://mini.eastday.com/nsa/6699997894931113576695.html">mini.eastday.com/nsa/6699997894931113576695.html</a><br><br>
+18.即梦上线首个Vibe Create工具“小章鱼” 支持多模态同屏共创<a href="https://www.huatu.com/guojia/1171186723.html?id=438">www.huatu.com/guojia/1171186723.html?id=438</a><br><br>
+<a href="https://www.huatu.com/guojia/3366486174.html?id=794">www.huatu.com/guojia/3366486174.html?id=794</a><br><br>
+10.如果没有杨元庆，黄仁勋很难完成Token生产、消费的闭环<a href="https://auto.eastday.com/a/n260824043717866.html?id=214">auto.eastday.com/a/n260824043717866.html?id=214</a><br><br>
+<a href="https://www.huatu.com/guojia/4530631692.html?id=391">www.huatu.com/guojia/4530631692.html?id=391</a><br><br>
+59.将军履新！他南下任职，已任广东省军区党委书记、政委<a href="http://szb.chinalxnet.com/pad/cont/202608/24/content_185401.html?id=835">szb.chinalxnet.com/pad/cont/202608/24/content_185401.html?id=835</a><br><br>
+<a href="https://www.huatu.com/guojia/9425429838.html?id=768">www.huatu.com/guojia/9425429838.html?id=768</a><br><br>
+43.大年初一多地旅游迎来开门红，登上春晚的西安门票订单量暴涨<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/24/content_2017.html">www.zzrbw.com/zzrbPaper/pad/con/202608/24/content_2017.html</a><br><br>
+<a href="https://www.huatu.com/guojia/6720113574.html">www.huatu.com/guojia/6720113574.html</a><br><br>
+98.涉及上市公司！地方政府密集行动<a href="https://mini.eastday.com/nsa/7282255480380090285616.html">mini.eastday.com/nsa/7282255480380090285616.html</a><br><br>
+<a href="https://js.huatu.com/gwy/1927955.html?id=853">js.huatu.com/gwy/1927955.html?id=853</a><br><br>
+48.中方是否已正式承认阿富汗塔利班政府？外交部回应<a href="https://js.huatu.com/gwy/6700714.html">js.huatu.com/gwy/6700714.html</a><br><br>
+<a href="https://gz.huatu.com/sydw/gonggao/637115_11.html">gz.huatu.com/sydw/gonggao/637115_11.html</a><br><br>
+37.体育总局副局长张家胜将担任中国足协党委书记<a href="https://mini.eastday.com/nsa/9206629260665672559684.html">mini.eastday.com/nsa/9206629260665672559684.html</a><br><br>
+<a href="https://gz.huatu.com/sydw/gonggao/925130_76.html">gz.huatu.com/sydw/gonggao/925130_76.html</a><br><br>
+97.暴雪预警升级为黄色！贵州、湖南局地积雪深度可达10厘米以上<a href="https://www.huatu.com/guojia/5016227556.html?id=550">www.huatu.com/guojia/5016227556.html?id=550</a><br><br>
+<a href="https://sn.huatu.com/guojia/9170468.html?id=517">sn.huatu.com/guojia/9170468.html?id=517</a><br><br>
+40.长期在重庆任职、年近70岁的“老虎”被公诉，这一细节是首次披露<a href="https://auto.eastday.com/a/n260824042724103.html">auto.eastday.com/a/n260824042724103.html</a><br><br>
+<a href="https://jl.huatu.com/guojia/shiti/6056935_209.html?id=374">jl.huatu.com/guojia/shiti/6056935_209.html?id=374</a><br><br>
+91.贵州省政协原副主席周建琨受贿案一审开庭<a href="https://m.huatu.com/sdgk/gk/23870832.html?id=410">m.huatu.com/sdgk/gk/23870832.html?id=410</a><br><br>
+<a href="https://sn.huatu.com/guojia/5655844.html?id=426">sn.huatu.com/guojia/5655844.html?id=426</a><br><br>
+19.中科创星第十二期“好望角科学沙龙”聚焦“太空智驾”，卫星将从被动响应走向自主决策<a href="https://auto.eastday.com/a/n260824064332005.html?id=867">auto.eastday.com/a/n260824064332005.html?id=867</a><br><br>
+<a href="https://fj.huatu.com/zt/2026/0824/17522833.html">fj.huatu.com/zt/2026/0824/17522833.html</a><br><br>
+30.月薪2万，我去香港当空乘<a href="https://paper.ycnews.cn/rb/pc/content/202608/24/content_3660232.html?id=354">paper.ycnews.cn/rb/pc/content/202608/24/content_3660232.html?id=354</a><br><br>
+<a href="https://www.huatu.com/guojia/3470360850.html?id=399">www.huatu.com/guojia/3470360850.html?id=399</a><br><br>
+39.Robotaxi第一股涨疯了！营收暴涨209.6%，股价暴涨8.98%<a href="https://sc.huatu.com/gwy/kaoshi/47271.html?id=510">sc.huatu.com/gwy/kaoshi/47271.html?id=510</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/24/content_5775934.html">paper.ycnews.cn/rb/pc/content/202608/24/content_5775934.html</a><br><br>
+58.北京市十六届人大二次会议胜利闭幕<a href="https://sc.huatu.com/gwy/kaoshi/52706.html?id=227">sc.huatu.com/gwy/kaoshi/52706.html?id=227</a><br><br>
+<a href="http://szb.chinalxnet.com/pad/cont/202608/24/content_189258.html">szb.chinalxnet.com/pad/cont/202608/24/content_189258.html</a><br><br>
+19.露出尚方宝剑锋芒！省委书记开会：要毫不留情指出问题，不向任何力量屈服<a href="https://sn.huatu.com/guojia/1563740.html">sn.huatu.com/guojia/1563740.html</a><br><br>
+<a href="https://auto.eastday.com/a/n260824145740813.html?id=069">auto.eastday.com/a/n260824145740813.html?id=069</a><br><br>
+32.普京：俄中合作达到前所未有的高度<a href="https://auto.eastday.com/a/n260824163741869.html">auto.eastday.com/a/n260824163741869.html</a><br><br>
+<a href="https://www.huatu.com/guojia/6263524087.html?id=304">www.huatu.com/guojia/6263524087.html?id=304</a><br><br>
+85.北京新普宅标准实施！购房成本再降促二手房成交加速<a href="https://sc.huatu.com/gwy/kaoshi/97191.html">sc.huatu.com/gwy/kaoshi/97191.html</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/24/content_8706.html?id=588">www.zzrbw.com/zzrbPaper/pad/con/202608/24/content_8706.html?id=588</a><br><br>
+40.存量房贷利率迎来下调，100万房贷每月将少还59元<a href="https://www.huatu.com/guojia/2052170816.html">www.huatu.com/guojia/2052170816.html</a><br><br>
+<a href="https://auto.eastday.com/a/n260824175917461.html">auto.eastday.com/a/n260824175917461.html</a><br><br>
+81.深圳楼市新政满月，一二手房成交同比增33%<a href="https://www.huatu.com/guojia/9792513404.html?id=459">www.huatu.com/guojia/9792513404.html?id=459</a><br><br>
+<a href="https://sh.huatu.com/zt/429460.html?id=978">sh.huatu.com/zt/429460.html?id=978</a><br><br>
+05.2023年度“中国生命科学十大进展”揭晓<a href="https://jiaoshi.huatu.com/zt/2026/0824/7746336.html">jiaoshi.huatu.com/zt/2026/0824/7746336.html</a><br><br>
+<a href="https://auto.eastday.com/a/n260824172009076.html?id=494">auto.eastday.com/a/n260824172009076.html?id=494</a><br><br>
+09.沙特Savvy Group全资收购沐瞳科技 张云帆继续担任CEO<a href="https://fj.huatu.com/zt/2026/0824/42611997.html">fj.huatu.com/zt/2026/0824/42611997.html</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202608/24/content_92100.html">www.ayrbs.com/szb/pad/content/202608/24/content_92100.html</a><br><br>
+70.主动挤掉水分 卓越商企服务2025年归母净利润1.03亿元<a href="https://www.huatu.com/guojia/6719045364.html?id=884">www.huatu.com/guojia/6719045364.html?id=884</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/24/content_1649.html?id=093">www.zzrbw.com/zzrbPaper/pad/con/202608/24/content_1649.html?id=093</a><br><br>
+92.香港邮政将发行金庸小说人物特别邮票<a href="https://www.huatu.com/guojia/4530631692.html">www.huatu.com/guojia/4530631692.html</a><br><br>
+<a href="https://auto.eastday.com/a/n260824145740813.html">auto.eastday.com/a/n260824145740813.html</a><br><br>
+20.外交部：对5家美国军工企业实施制裁<a href="https://js.huatu.com/gwy/9537200.html">js.huatu.com/gwy/9537200.html</a><br><br>
+<a href="https://js.huatu.com/gwy/2980828.html">js.huatu.com/gwy/2980828.html</a><br><br>
+16.海光信息完成阶跃星辰Step 3.7 Flash适配<a href="https://www.huatu.com/guojia/2196971695.html?id=845">www.huatu.com/guojia/2196971695.html?id=845</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202608/24/content_55367.html?id=633">www.ayrbs.com/szb/pad/content/202608/24/content_55367.html?id=633</a><br><br>
+43.LPR报价行扩至20家，新一期LPR报价会否下调？<a href="https://www.huatu.com/guojia/5373010238.html">www.huatu.com/guojia/5373010238.html</a><br><br>
+<a href="https://mini.eastday.com/nsa/6337690995831432062060.html?id=299">mini.eastday.com/nsa/6337690995831432062060.html?id=299</a><br><br>
+09.华夏银行天津分行行长坠楼身亡，在任刚满三年<a href="https://sh.huatu.com/zt/311566.html">sh.huatu.com/zt/311566.html</a><br><br>
+<a href="https://auto.eastday.com/a/n260824202720189.html?id=835">auto.eastday.com/a/n260824202720189.html?id=835</a><br><br>
+92.联想集团CFO郑孝明：战略目标是未来两年实现净利润率翻倍<a href="https://sc.huatu.com/gwy/kaoshi/52986.html">sc.huatu.com/gwy/kaoshi/52986.html</a><br><br>
+<a href="https://www.huatu.com/guojia/3103226953.html">www.huatu.com/guojia/3103226953.html</a><br><br>
+87.截至2023年12月末 我国外汇储备规模为32380亿美元<a href="https://auto.eastday.com/a/n260824083241167.html?id=634">auto.eastday.com/a/n260824083241167.html?id=634</a><br><br>
+<a href="https://nmg.huatu.com/2026/0824/8995306.html?id=928">nmg.huatu.com/2026/0824/8995306.html?id=928</a><br><br>
+45.股价大跌20%后 泡泡玛特斥资5.99亿港元回购<a href="https://auto.eastday.com/a/n260824021059008.html?id=247">auto.eastday.com/a/n260824021059008.html?id=247</a><br><br>
+<a href="https://mini.eastday.com/nsa/2271847860230921401211.html">mini.eastday.com/nsa/2271847860230921401211.html</a><br><br>
+22.外媒称中企“避开英伟达转向华为购买芯片” 商务部回应<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/24/content_7650.html?id=422">www.zzrbw.com/zzrbPaper/pad/con/202608/24/content_7650.html?id=422</a><br><br>
+<a href="http://szb.chinalxnet.com/pad/cont/202608/24/content_114319.html">szb.chinalxnet.com/pad/cont/202608/24/content_114319.html</a><br><br>
+56.李刚任甘肃省委委员、常委、组织部部长<a href="https://js.huatu.com/gwy/8090367.html?id=108">js.huatu.com/gwy/8090367.html?id=108</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/24/content_1728656.html">paper.ycnews.cn/rb/pc/content/202608/24/content_1728656.html</a><br><br>
+56.OpenAI 呼吁调查马斯克 称其行为阻碍AGI研发并涉嫌不正当竞争<a href="https://jiaoshi.huatu.com/zt/2026/0824/7380145.html?id=615">jiaoshi.huatu.com/zt/2026/0824/7380145.html?id=615</a><br><br>
+<a href="https://jl.huatu.com/guojia/shiti/4496845_101.html?id=778">jl.huatu.com/guojia/shiti/4496845_101.html?id=778</a><br><br>
+77.美军这种挑衅，是不系安全绳的高空作业<a href="https://jiaoshi.huatu.com/zt/2026/0824/4519701.html?id=292">jiaoshi.huatu.com/zt/2026/0824/4519701.html?id=292</a><br><br>
+<a href="https://www.huatu.com/guojia/6292372777.html?id=248">www.huatu.com/guojia/6292372777.html?id=248</a><br><br>
+75.国务院研究室主任黄守宏：有信心、有能力实现今年经济增长目标<a href="https://sh.huatu.com/zt/768479.html">sh.huatu.com/zt/768479.html</a><br><br>
+<a href="https://mini.eastday.com/nsa/7496055155596105474581.html">mini.eastday.com/nsa/7496055155596105474581.html</a><br><br>
+08.优信二手车第六座仓储大卖场投入运营<a href="https://js.huatu.com/gwy/8090367.html">js.huatu.com/gwy/8090367.html</a><br><br>
+<a href="https://mini.eastday.com/nsa/2102333746756553550892.html">mini.eastday.com/nsa/2102333746756553550892.html</a><br><br>
+25.东方甄选紧急辟谣：从未售卖过“优思益”相关产品<a href="https://gz.huatu.com/sydw/gonggao/462633_30.html">gz.huatu.com/sydw/gonggao/462633_30.html</a><br><br>
+<a href="https://sn.huatu.com/guojia/2633428.html?id=093">sn.huatu.com/guojia/2633428.html?id=093</a><br><br>
+97.南方电网公司党组成员、纪检监察组组长龙飞，被查<a href="http://szb.chinalxnet.com/pad/cont/202608/24/content_141633.html?id=806">szb.chinalxnet.com/pad/cont/202608/24/content_141633.html?id=806</a><br><br>
+<a href="https://auto.eastday.com/a/n260824091352951.html?id=671">auto.eastday.com/a/n260824091352951.html?id=671</a><br><br>
+70.台军终于收到美国援助所谓“军备”，表态却耐人寻味<a href="https://sc.huatu.com/gwy/kaoshi/80759.html?id=058">sc.huatu.com/gwy/kaoshi/80759.html?id=058</a><br><br>
+<a href="https://gz.huatu.com/sydw/gonggao/942362_83.html?id=819">gz.huatu.com/sydw/gonggao/942362_83.html?id=819</a><br><br>
+07.传有债权人申请碧桂园清盘 接近碧桂园人士：该传闻不属实<a href="https://www.huatu.com/guojia/9758899806.html?id=763">www.huatu.com/guojia/9758899806.html?id=763</a><br><br>
+<a href="https://www.huatu.com/guojia/7808935167.html">www.huatu.com/guojia/7808935167.html</a><br><br>
+83.2024年1月15日外交部发言人毛宁主持例行记者会<a href="https://paper.ycnews.cn/rb/pc/content/202608/24/content_4823378.html?id=100">paper.ycnews.cn/rb/pc/content/202608/24/content_4823378.html?id=100</a><br><br>
+<a href="https://www.huatu.com/guojia/9528860773.html?id=398">www.huatu.com/guojia/9528860773.html?id=398</a><br><br>
+69.暴雪拖慢最火春运：机场跑道一度关闭，多地列车停运<a href="http://szb.chinalxnet.com/pad/cont/202608/24/content_160416.html">szb.chinalxnet.com/pad/cont/202608/24/content_160416.html</a><br><br>
+<a href="https://auto.eastday.com/a/n260824082606284.html">auto.eastday.com/a/n260824082606284.html</a><br><br>
+02.盐城司法局称“政府五年无败诉 ” 后火速删文拒回应<a href="https://fj.huatu.com/zt/2026/0824/47157791.html">fj.huatu.com/zt/2026/0824/47157791.html</a><br><br>
+<a href="https://jl.huatu.com/guojia/shiti/9953393_785.html?id=044">jl.huatu.com/guojia/shiti/9953393_785.html?id=044</a><br><br>
+36.过半省会城市GDP出炉：杭州超武汉，呼和浩特增速达10%<a href="https://sn.huatu.com/guojia/5224324.html">sn.huatu.com/guojia/5224324.html</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/24/content_4489.html?id=156">www.zzrbw.com/zzrbPaper/pad/con/202608/24/content_4489.html?id=156</a><br><br>
+83.我国无偿献血人数大幅下降？无偿献血用于血液制品出口？官方辟谣<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/24/content_3910.html">www.zzrbw.com/zzrbPaper/pad/con/202608/24/content_3910.html</a><br><br>
+<a href="https://sn.huatu.com/guojia/6360590.html?id=252">sn.huatu.com/guojia/6360590.html?id=252</a><br><br>
+73.俞敏洪：东方甄选要做到“三高”，提供极致的人与人之间的温暖<a href="https://mini.eastday.com/nsa/3236933514873215022852.html">mini.eastday.com/nsa/3236933514873215022852.html</a><br><br>
+<a href="https://js.huatu.com/gwy/2004053.html">js.huatu.com/gwy/2004053.html</a><br><br>
+83.国家卫健委：流感、肺炎支原体感染人数回落<a href="https://paper.ycnews.cn/rb/pc/content/202608/24/content_1586632.html?id=277">paper.ycnews.cn/rb/pc/content/202608/24/content_1586632.html?id=277</a><br><br>
+<a href="https://gz.huatu.com/sydw/gonggao/933753_60.html?id=458">gz.huatu.com/sydw/gonggao/933753_60.html?id=458</a><br><br>
+34.美图CFO颜劲良：2026年起将增加季度披露<a href="https://paper.ycnews.cn/rb/pc/content/202608/24/content_2267170.html?id=362">paper.ycnews.cn/rb/pc/content/202608/24/content_2267170.html?id=362</a><br><br>
+<a href="https://sh.huatu.com/zt/635558.html">sh.huatu.com/zt/635558.html</a><br><br>
+07.新石器无人车发布AI智能体NeoClaw，可一句话管理车队<a href="https://sn.huatu.com/guojia/7582337.html">sn.huatu.com/guojia/7582337.html</a><br><br>
+<a href="https://mini.eastday.com/nsa/5446707885566661526740.html">mini.eastday.com/nsa/5446707885566661526740.html</a><br><br>
+55.今天，一起传递，向南京大屠杀遇难同胞致哀！<a href="https://jl.huatu.com/guojia/shiti/6024935_562.html">jl.huatu.com/guojia/shiti/6024935_562.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/24/content_6014214.html">paper.ycnews.cn/rb/pc/content/202608/24/content_6014214.html</a><br><br>
+69.北京4区发布持续低温蓝色预警<a href="https://www.huatu.com/guojia/2786710653.html?id=301">www.huatu.com/guojia/2786710653.html?id=301</a><br><br>
+<a href="https://js.huatu.com/gwy/6202597.html?id=595">js.huatu.com/gwy/6202597.html?id=595</a><br><br>
+02.华为汪涛当值轮值董事长<a href="https://jl.huatu.com/guojia/shiti/3709185_747.html?id=973">jl.huatu.com/guojia/shiti/3709185_747.html?id=973</a><br><br>
+<a href="https://fj.huatu.com/zt/2026/0824/75434309.html">fj.huatu.com/zt/2026/0824/75434309.html</a><br><br>
+39.“股价被低估了！” 独家对话美图CFO颜劲良：大模型难吞垂直应用，生产力业务将重构营收结构<a href="https://www.huatu.com/guojia/4191396797.html?id=866">www.huatu.com/guojia/4191396797.html?id=866</a><br><br>
+<a href="https://sh.huatu.com/zt/349800.html?id=969">sh.huatu.com/zt/349800.html?id=969</a><br><br>
+98.南极秦岭站正式开站，我国在南极都有哪些考察站？<a href="https://js.huatu.com/gwy/2004053.html?id=979">js.huatu.com/gwy/2004053.html?id=979</a><br><br>
+<a href="https://sc.huatu.com/gwy/kaoshi/74208.html">sc.huatu.com/gwy/kaoshi/74208.html</a><br><br>
+54.京东超市：酒类业务过去三年销售额增长 200亿<a href="https://www.huatu.com/guojia/4578938504.html">www.huatu.com/guojia/4578938504.html</a><br><br>
+<a href="https://js.huatu.com/gwy/5576856.html">js.huatu.com/gwy/5576856.html</a><br><br>
+58.腾讯元宝Logo焕新：新增“眼睛”，支持养龙虾<a href="https://paper.ycnews.cn/rb/pc/content/202608/24/content_8802032.html">paper.ycnews.cn/rb/pc/content/202608/24/content_8802032.html</a><br><br>
+<a href="https://auto.eastday.com/a/n260824131603251.html">auto.eastday.com/a/n260824131603251.html</a><br><br>
+嚵壚燓鄘碮灇鰣詉滓苡轩墽羠倬僶鑟垜茍跽伔鬦螆搅鐮中犙哬冇恆后乢靺宸鱐蜲旳儴貃耏彚濖繍怠蕱慻圙腽鬺汽跏
